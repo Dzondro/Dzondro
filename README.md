@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dzondro
-- 👀 I’m interested in Football
+- 👀 I’m interested in HOI4 mechanics
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: cant
